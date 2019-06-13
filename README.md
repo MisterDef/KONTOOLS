@@ -1,2 +1,0 @@
-# KONTOOLS
-Subscribe : DarkCurut08
